@@ -26,9 +26,9 @@ HRique HR Solutions is a consultancy service dedicated to providing comprehensiv
 
 ## Contact Us
 For inquiries or to schedule a consultation, please reach out:
-- **Email:** contact@hriquehrsolutions.com  
-- **Phone:** +1 (555) 012-3456  
-- **Website:** [hriquehrsolutions.com](http://hriquehrsolutions.com)
+- Email: hriquehr24solutions.com  
+- Phone: +971 523004899  
+- Website: [hriquehrsolutions.com](http://hriquehrsolutions.com)
 
 ## Conclusion
 At HRique HR Solutions, we strive to empower businesses by optimizing their human resources management. Join us for a partnership that fosters growth and success!
